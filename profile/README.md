@@ -1,4 +1,4 @@
-# MasterClass Discount & Coupon Codes (2025) — Get 50% OFF Now
+# MasterClass Discount & Coupon Codes (2025) — Get 50% OFF Now.
 
 MasterClass is a premium online learning platform renowned for its high-quality courses taught by world-class instructors like Gordon Ramsay, Serena Williams, and Neil Gaiman. Whether you want to learn how to cook gourmet meals, write captivating novels, or excel in leadership, MasterClass offers unparalleled access to industry experts.
 
